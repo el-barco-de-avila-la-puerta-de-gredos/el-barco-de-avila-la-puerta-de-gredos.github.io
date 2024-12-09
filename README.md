@@ -53,6 +53,13 @@ https://patrimonionatural.org/espacios-naturales/parque-regional/parque-regional
 ### Estación de esquí Sierra de Béjar – La Covatilla
 https://www.sierradebejar-lacovatilla.com/
 
+### Rutas en Quad en Bejar, Salamanca
+https://quadaventurabejar.com/rutas-quad-salamanca/
+
+### Horse Rides - Sierra de Gredos
+https://www.gredosacaballo.com/
+https://www.inthesaddle.com/rides/sierra-de-gredos/<BR>
+
 ### CLUB DE GOLF BEJAR - LA CERRALLANA
 https://www.clubgolfbejar.es/
 https://rfegolf.es/ClubPaginas/ClubMicrosite.aspx?ClubId=707
