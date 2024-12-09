@@ -1,4 +1,4 @@
-# El Barco de Avila: La Puerta de Gredos
+# El Barco de Ávila: La Puerta de Gredos
 
 Enclavada en la espectacular Sierra de Gredos y a orillas de río Tormes, el Barco de Ávila enamora a primera vista.
 
