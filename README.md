@@ -50,7 +50,8 @@ https://www.spain.info/es/naturaleza/parque-regional-sierra-gredos/<BR>
 https://www.turismocastillayleon.com/es/naturaleza/parque-regional-sierra-gredos<BR>
 https://patrimonionatural.org/espacios-naturales/parque-regional/parque-regional-sierra-de-gredos<BR>
 
-
+### Estación de esquí Sierra de Béjar – La Covatilla
+https://www.sierradebejar-lacovatilla.com/
 
 ### YouTube
 https://www.youtube.com/watch?v=ifFgyTV-DYc<BR>
@@ -58,16 +59,21 @@ https://www.youtube.com/watch?v=WRWcPTri4M8<BR>
 https://www.youtube.com/watch?v=ifFgyTV-DYc<BR>
 
 ### Places to visit close to El Barco de Ávila
+* Estación de esquí Sierra de Béjar – La Covatilla
+* El embalse de El Duque, también conocido como Laguna del Duque o Laguna de la Solana
+* Jerte (Cáceres) / Valle del Jerte (Cáceres)
 * Pico Almanzor (Sierra de Gredos)
 * Navalonguilla, Ávila
 * Plataforma de Gredos
 * Garganta de los Caballeros en Navalonguilla, Ávila
 * Béjar (Salamanca)
+* Sierra de Béjar (Salamanca)
 * Hervás (Cáceres)
 * Candelario (Salamanca)
 * Ávila (Ávila)
 * Salamanca (Salamanca)
 * La Alberca (Salamanca) / Sierra de Francia
+* Puerto de Tornavacas
 * Ledesma (Salamanca)
 * Segovia (Segovia)
 * Ciudad Rodrigo (Salamanca)
