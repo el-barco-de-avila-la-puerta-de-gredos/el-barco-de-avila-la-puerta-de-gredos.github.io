@@ -53,6 +53,17 @@ https://patrimonionatural.org/espacios-naturales/parque-regional/parque-regional
 ### Estación de esquí Sierra de Béjar – La Covatilla
 https://www.sierradebejar-lacovatilla.com/
 
+### CLUB DE GOLF BEJAR - LA CERRALLANA
+https://www.clubgolfbejar.es/
+https://rfegolf.es/ClubPaginas/ClubMicrosite.aspx?ClubId=707
+https://www.turismocastillayleon.com/es/naturaleza/club-golf-bejar
+
+### Museo Taurino de Béjar
+https://www.turismocastillayleon.com/es/patrimonio-cultura/museo-taurino-bejar
+
+### MUSEO DE LA MOTO y COCHE CLASICA / Hervas ( Caceres )
+https://www.museomotoclasica.com/
+
 ### YouTube
 https://www.youtube.com/watch?v=ifFgyTV-DYc<BR>
 https://www.youtube.com/watch?v=WRWcPTri4M8<BR>
