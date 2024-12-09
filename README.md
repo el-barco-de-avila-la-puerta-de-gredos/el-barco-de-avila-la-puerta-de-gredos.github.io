@@ -11,6 +11,6 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 ¡Mucho por descubrir!
 
 ### Links
-https://www.turismocastillayleon.com/es/patrimonio-cultura/barco-avila
+https://www.turismocastillayleon.com/es/patrimonio-cultura/barco-avila<BR>
 https://www.spain.info/es/destino/el-barco-avila/
 
