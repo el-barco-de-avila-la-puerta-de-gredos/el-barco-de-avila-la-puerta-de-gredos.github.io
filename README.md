@@ -51,25 +51,25 @@ https://www.turismocastillayleon.com/es/naturaleza/parque-regional-sierra-gredos
 https://patrimonionatural.org/espacios-naturales/parque-regional/parque-regional-sierra-de-gredos<BR>
 
 ### Estación de esquí Sierra de Béjar – La Covatilla
-https://www.sierradebejar-lacovatilla.com/
+https://www.sierradebejar-lacovatilla.com/<BR>
 
 ### Rutas en Quad en Bejar, Salamanca
-https://quadaventurabejar.com/rutas-quad-salamanca/
+https://quadaventurabejar.com/rutas-quad-salamanca/<BR>
 
 ### Horse Rides - Sierra de Gredos
-https://www.gredosacaballo.com/
+https://www.gredosacaballo.com/<BR>
 https://www.inthesaddle.com/rides/sierra-de-gredos/<BR>
 
 ### CLUB DE GOLF BEJAR - LA CERRALLANA
-https://www.clubgolfbejar.es/
-https://rfegolf.es/ClubPaginas/ClubMicrosite.aspx?ClubId=707
-https://www.turismocastillayleon.com/es/naturaleza/club-golf-bejar
+https://www.clubgolfbejar.es/<BR>
+https://rfegolf.es/ClubPaginas/ClubMicrosite.aspx?ClubId=707<BR>
+https://www.turismocastillayleon.com/es/naturaleza/club-golf-bejar<BR>
 
 ### Museo Taurino de Béjar
-https://www.turismocastillayleon.com/es/patrimonio-cultura/museo-taurino-bejar
+https://www.turismocastillayleon.com/es/patrimonio-cultura/museo-taurino-bejar<BR>
 
 ### MUSEO DE LA MOTO y COCHE CLASICA / Hervas ( Caceres )
-https://www.museomotoclasica.com/
+https://www.museomotoclasica.com/<BR>
 
 ### YouTube
 https://www.youtube.com/watch?v=ifFgyTV-DYc<BR>
