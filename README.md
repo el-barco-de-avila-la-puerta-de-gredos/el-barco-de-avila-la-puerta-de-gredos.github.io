@@ -13,10 +13,21 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 
 ### Bus from Madrid to El Barco de Avila
 https://www.cevesa.es/horario <BR>
+https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=35&Itemid=53<BR>
 Time: 08:30, 16:10<BR>
 
 ### City Hall - El Barco de Avila
-https://aytobarcodeavila.net/
+https://aytobarcodeavila.net/<BR>
+
+### Supermarkets - El Barco de Avila
+Supermercados Dia - C. del Pozo, 32, 05600 El Barco de Ávila, Ávila <BR>
+Unide Market Supermercados - Av. Cardenal Tabera, 3, 05600 El Barco de Ávila, Ávila<BR>
+FRUTAS BERMEJO, S.L. - Carr. Soria - Plasencia, KM 334, 05600 El Barco de Ávila, Ávila<BR>
+Mercadona Bejar - Calle Ctra. de Salamanca, 7, 37700 Béjar, Salamanca<BR><BR>
+
+
+### Restaurants
+https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=44&Itemid=63<BR>
 
 ### Links
 https://aytobarcodeavila.net/<BR>
