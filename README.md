@@ -11,6 +11,13 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 ¡Mucho por descubrir!
 
 
+### Bus from Madrid to El Barco de Avila
+https://www.cevesa.es/horario <BR>
+Time: 08:30, 16:10<BR>
+
+### City Hall - El Barco de Avila
+https://aytobarcodeavila.net/
+
 ### Links
 https://aytobarcodeavila.net/<BR>
 https://www.turismocastillayleon.com/es/patrimonio-cultura/barco-avila<BR>
