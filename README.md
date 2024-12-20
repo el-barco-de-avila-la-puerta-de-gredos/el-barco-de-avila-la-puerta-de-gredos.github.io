@@ -10,6 +10,13 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 
 ¡Mucho por descubrir!
 
+### Slow Tourism, Why should I go?
+This is really a place to cure you from modern life and to help to reconnect with Nature, the mountains, reduce the stress and increase your health. <BR>
+
+O slow tourism é uma forma de viajar que privilegia o abrandamento, a sustentabilidade e uma ligação profunda com o meio ambiente.<BR>
+
+Get away from the big city and slow down in the "Sierra de Gredos". <BR>
+
 
 ### Bus from Madrid to El Barco de Avila
 https://www.cevesa.es/horario <BR>
