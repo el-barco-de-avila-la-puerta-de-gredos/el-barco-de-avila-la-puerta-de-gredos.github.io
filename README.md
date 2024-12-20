@@ -10,6 +10,10 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 
 ¡Mucho por descubrir!
 
+### Turismo ecológico
+“Turismo ecológico”.<BR>
+https://www.blog.vaidevoala.com.br/turismo-ecologico-4-destinos/<BR>
+
 ### Slow Tourism, Why should I go?
 This is really a place to cure you from modern life and to help to reconnect with Nature, the mountains, reduce the stress and increase your health. <BR>
 
