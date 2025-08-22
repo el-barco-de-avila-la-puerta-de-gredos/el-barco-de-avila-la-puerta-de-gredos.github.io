@@ -10,6 +10,9 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 
 ¡Mucho por descubrir!
 
+### El Circo de Gredos a vista de pájaro | Parques Naturales
+https://www.youtube.com/watch?v=UatkrM_UyRQ
+
 ### Turismo ecológico
 “Turismo ecológico”.<BR>
 https://www.blog.vaidevoala.com.br/turismo-ecologico-4-destinos/<BR>
@@ -78,6 +81,14 @@ https://es.wikipedia.org/wiki/Pico_Almanzor<BR>
 https://www.spain.info/es/naturaleza/parque-regional-sierra-gredos/<BR>
 https://www.turismocastillayleon.com/es/naturaleza/parque-regional-sierra-gredos<BR>
 https://patrimonionatural.org/espacios-naturales/parque-regional/parque-regional-sierra-de-gredos<BR>
+
+### Guias (Almanzor y Circo de Gredos)
+https://guiasdelcirco.com/<BR>
+https://www.instagram.com/guias.delcirco/<BR>
+https://www.escuelaalpinadegredos.com/raul-lora/<BR>
+https://www.escuelaalpinadegredos.com/gredos/<BR>
+https://www.youtube.com/watch?v=A-BzABkwNFg<BR>
+https://naturtrek.com/trekking-sierra-de-gredos-galayos-y-circo-de-gredos/<BR>
 
 ### Estación de esquí Sierra de Béjar – La Covatilla
 https://www.sierradebejar-lacovatilla.com/<BR>
