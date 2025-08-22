@@ -92,6 +92,11 @@ https://www.spain.info/es/naturaleza/parque-regional-sierra-gredos/<BR>
 https://www.turismocastillayleon.com/es/naturaleza/parque-regional-sierra-gredos<BR>
 https://patrimonionatural.org/espacios-naturales/parque-regional/parque-regional-sierra-de-gredos<BR>
 
+### Yoga - El Barco de Avila
+https://www.evaparvatayoga.com/<BR>
+https://www.youtube.com/@evaherrerogarcia8722<BR>
+https://www.instagram.com/parvatayoga/<BR>
+
 ### Guias (Almanzor y Circo de Gredos)
 https://guiasdelcirco.com/<BR>
 https://www.instagram.com/guias.delcirco/<BR>
