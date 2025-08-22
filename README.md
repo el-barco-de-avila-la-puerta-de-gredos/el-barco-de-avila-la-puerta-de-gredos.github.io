@@ -113,6 +113,7 @@ https://quadaventurabejar.com/rutas-quad-salamanca/<BR>
 
 ### Horse Rides - Sierra de Gredos
 https://www.gredosacaballo.com/<BR>
+https://www.instagram.com/gredosacaballo/<BR>
 https://www.inthesaddle.com/rides/sierra-de-gredos/<BR>
 
 ### CLUB DE GOLF BEJAR - LA CERRALLANA
