@@ -10,8 +10,18 @@ Sus famosas alubias, las patatas revolconas o el chuletón a la parrilla son imp
 
 ¡Mucho por descubrir!
 
+
+### Parques Naturales T1/E22: Parque Regional de la Sierra de Gredos
+https://www.youtube.com/watch?v=WS5trfipAzk
+
 ### El Circo de Gredos a vista de pájaro | Parques Naturales
 https://www.youtube.com/watch?v=UatkrM_UyRQ
+
+### La historia de las rocas de granito de la Sierra de Gredos | El Cazameteoritos
+https://www.youtube.com/watch?v=QhV9K0CaBfU
+
+### Senderismo a las Cinco Lagunas de GREDOS con PERNOCTA en ⛺tienda de CAMPAÑA.
+https://www.youtube.com/watch?v=-EBDvOQsoHE
 
 ### Turismo ecológico
 “Turismo ecológico”.<BR>
